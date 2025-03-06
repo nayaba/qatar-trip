@@ -1,3 +1,5 @@
+# Doha
+
 **Thursday Evening (Arrival Day):**
 
 - **Arrival in Doha:** Around 8:00 PM.
@@ -29,7 +31,7 @@
 
 - **Afternoon:**
 
-  - **Museum of Islamic Art (MIA):** Plan your visit between 8:00 PM and midnight, as the museum operates during these hours in Ramadan. citeturn0search6 The MIA houses an extensive collection of Islamic artifacts and offers stunning views of the Doha skyline.
+  - **Museum of Islamic Art (MIA):** Plan your visit between 8:00 PM and midnight, as the museum operates during these hours in Ramadan. The MIA houses an extensive collection of Islamic artifacts and offers stunning views of the Doha skyline.
 
   <img src="https://media.gettyimages.com/id/185088559/photo/museum-of-islamic-art.jpg?s=612x612&w=0&k=20&c=pYzrY0P0ozVErbcHU3MNvrIVuxwfOkyXWPJyps1H7N0=">
 
@@ -42,6 +44,7 @@
   - **Parisa Souq Waqif:** After your museum visit, dine at Parisa, renowned for its Persian cuisine and stunning interiors. Located within Souq Waqif, it's conveniently accessible and offers an immersive dining experience. Ensure to check their Ramadan operating hours in advance.
 
     <img src="https://lh5.googleusercontent.com/p/AF1QipNF6G4sBVJcee58Qo0YA0Sz8AKcr7BpxKlToMxO=w243-h406-n-k-no-nu">
+    
     [Parisa Souq Waqif](https://parisarestaurants.com/)
 
 **Saturday:**
@@ -52,6 +55,7 @@
 
 
     <img src="https://www.lusail.com/wp-content/uploads/2021/03/PLACE-VENDOME.jpg">
+    
     [Place Vendôme Mall](https://www.placevendomeqatar.com/en)
 
   - **Metro Directions:** From Bin Mahmoud Station (Gold Line), travel eastbound to Msheireb Station (2 stops). Transfer to the Red Line and head northbound to Legtaifiya Station. From there, switch to the Lusail Tram (Orange Line) and alight at Lusail Central Station, which is adjacent to Place Vendôme Mall.
