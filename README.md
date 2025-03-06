@@ -39,40 +39,43 @@
 
 - **Iftar Experience:**
 
-  - **Hoi An Pho:** After your museum visit, dine at Hoi An Pho, renowned for its Vietnamese cuisine. Located near the Bin Mahmoud Metro Station, it's conveniently accessible. Ensure to check their Ramadan operating hours in advance.
+  - **Parisa Souq Waqif:** After your museum visit, dine at Parisa, renowned for its Persian cuisine and stunning interiors. Located within Souq Waqif, it's conveniently accessible and offers an immersive dining experience. Ensure to check their Ramadan operating hours in advance.
 
-    *Image:* ![Hoi An Pho](https://www.happycow.net/reviews/hoi-an-pho-doha-356589)
+    <img src="https://lh5.googleusercontent.com/p/AF1QipNF6G4sBVJcee58Qo0YA0Sz8AKcr7BpxKlToMxO=w243-h406-n-k-no-nu">
+    [Parisa Souq Waqif](https://parisarestaurants.com/)
 
 **Saturday:**
 
 - **Morning:**
 
-  - **Place Vendôme Mall:** Prioritize your visit to this luxurious mall. During Ramadan, the mall operates from 10:00 AM to 3:00 PM and reopens from 7:00 PM to 12:00 AM.
+  - **Place Vendôme Mall:** Prioritize your visit to this luxurious mall. During Ramadan, the mall operates from 10:00 AM to 3:00 PM and reopens from 7:00 PM to 12:00 AM.
 
-    *Image:* ![Place Vendôme Mall](https://www.dreamstime.com/place-vendome-mall-lusail-city-doha-qatar-place-vendome-mall-new-mall-located-city-lusail-design-open-image257248399)
 
-  - **Metro Directions:** From Bin Mahmoud Station (Gold Line), travel eastbound to Msheireb Station (2 stops). Transfer to the Red Line and head northbound to Legtaifiya Station. From there, switch to the Lusail Tram (Orange Line) and alight at Lusail Central Station, which is adjacent to Place Vendôme Mall.
+    <img src="https://www.lusail.com/wp-content/uploads/2021/03/PLACE-VENDOME.jpg">
+    [Place Vendôme Mall](https://www.placevendomeqatar.com/en)
+
+  - **Metro Directions:** From Bin Mahmoud Station (Gold Line), travel eastbound to Msheireb Station (2 stops). Transfer to the Red Line and head northbound to Legtaifiya Station. From there, switch to the Lusail Tram (Orange Line) and alight at Lusail Central Station, which is adjacent to Place Vendôme Mall.
 
 - **Afternoon:**
 
-  - **Departure Preparation:** Return to your hotel to collect your luggage and proceed to Hamad International Airport for your 8:00 PM flight.
+  - **Departure Preparation:** Return to your hotel to collect your luggage and proceed to Hamad International Airport for your 8:00 PM flight.
 
-  - **Metro Directions to Airport:** From Bin Mahmoud Station (Gold Line), travel eastbound to Msheireb Station (2 stops). Transfer to the Red Line and head southbound directly to Hamad International Airport T1 Station.
+  - **Metro Directions to Airport:** From Bin Mahmoud Station (Gold Line), travel eastbound to Msheireb Station (2 stops). Transfer to the Red Line and head southbound directly to Hamad International Airport T1 Station.
 
 **Additional Tips:**
 
 - **Doha Metro Operating Hours:**
 
-  - **Saturday to Wednesday:** 6:00 AM – 11:00 PM
+  - **Saturday to Wednesday:** 6:00 AM – 11:00 PM
 
-  - **Thursday:** 6:00 AM – Midnight
+  - **Thursday:** 6:00 AM – Midnight
 
-  - **Friday:** 2:00 PM – Midnight
+  - **Friday:** 2:00 PM – Midnight
 
-  - Trains arrive every six minutes, with the journey between stations averaging three minutes.
+  - Trains arrive every six minutes, with the journey between stations averaging three minutes.
 
-- **Ramadan Etiquette:** Be mindful of local customs. Eating, drinking, or smoking in public during daylight hours is prohibited. However, many hotels and certain restaurants discreetly serve non-fasting guests during the day.
+- **Ramadan Etiquette:** Be mindful of local customs. Eating, drinking, or smoking in public during daylight hours is prohibited. However, many hotels and certain restaurants discreetly serve non-fasting guests during the day.
 
-- **Hydration and Rest:** March temperatures in Doha can be warm. Stay hydrated and consider the heat when planning daytime activities.
+- **Hydration and Rest:** March temperatures in Doha can be warm. Stay hydrated and consider the heat when planning daytime activities.
 
 - **Advance Reservations:** Given the unique schedules during Ramadan, it's advisable to book museum visits and restaurant reservations in advance.
