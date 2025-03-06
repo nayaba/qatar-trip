@@ -83,3 +83,8 @@
 - **Hydration and Rest:** March temperatures in Doha can be warm. Stay hydrated and consider the heat when planning daytime activities.
 
 - **Advance Reservations:** Given the unique schedules during Ramadan, it's advisable to book museum visits and restaurant reservations in advance.
+
+
+<img src="https://www.qr.com.qa/media/QR_HomePage_Maps_EN.png">
+
+[Doha Metro Map](https://www.qr.com.qa/metro-tram?code=AboutMetroAndTram)
