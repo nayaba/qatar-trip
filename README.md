@@ -84,7 +84,6 @@
 
 - **Advance Reservations:** Given the unique schedules during Ramadan, it's advisable to book museum visits and restaurant reservations in advance.
 
-
-<img src="https://www.qr.com.qa/media/QR_HomePage_Maps_EN.png">
+![doha-metro-map](https://github.com/user-attachments/assets/63853d77-35e6-4475-ab19-0cc53a03e9c5)
 
 [Doha Metro Map](https://www.qr.com.qa/metro-tram?code=AboutMetroAndTram)
